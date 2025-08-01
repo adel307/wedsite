@@ -15,10 +15,10 @@ Client Testimonials – Trusted feedback from satisfied businesses.
 Easy Contact Options – A user-friendly contact form and direct communication details.
 
 Why Choose PrimeSolutions?
-✔ 250+ Successful Projects
-✔ 98% Client Satisfaction Rate
-✔ 50+ Skilled Professionals
-✔ Custom-Tailored Digital Solutions
+✔ 250+ Successful Projects.
+✔ 98% Client Satisfaction Rate.
+✔ 50+ Skilled Professionals.
+✔ Custom-Tailored Digital Solutions.
 
 Whether you need a powerful website, a mobile app, or a complete digital transformation, PrimeSolutions combines strategic thinking, technical excellence, and creative innovation to help your business succeed.
 
